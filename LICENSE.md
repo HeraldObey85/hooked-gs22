@@ -1,4 +1,4 @@
-#  
+#  hooked automatic Scripts is the best hooked Script, featuring auto-heal and invisibility. Safe and powerful for all your needs.
 
 
 
